@@ -7,3 +7,5 @@
 
 [deepabhat86](https://github.com/deepabhat86)
 
+[Jaya Sindhu Manda](https://github.com/MJSindhu7)
+
