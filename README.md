@@ -9,3 +9,5 @@
 
 [Jaya Sindhu Manda](https://github.com/MJSindhu7)
 
+[Namratha Bhat](https://github.com/namratha03)
+
